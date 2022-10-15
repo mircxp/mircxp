@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @mircxp
+- Ben  Öğrenciyim
+- yazılım ve grafık tasarım alanında becerim var
